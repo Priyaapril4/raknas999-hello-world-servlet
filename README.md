@@ -8,3 +8,4 @@ How is your class going on?
 good.
 ok, then will catch u up someother time.
 lets go for chai and come back quickly.
+the time is 9.30 a.m.
